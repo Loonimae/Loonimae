@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Loonimae
+- 👀 I’m interested in games and arts
+- 🌱 I’m currently learning how to make a website and some day a game
+- 📫 You can find me on Tumblr @loonimae
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: I made a stardew valley mod
